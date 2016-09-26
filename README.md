@@ -1,1 +1,1 @@
-# Origami-Clicker
+Hi there! If your reading this than you are awesome (and one of the first people to view this)! I hope this game makes you fell good as it is my first game. And if you could be so nice as to support me on patreon? Here's the link https://www.patreon.com/bePatron?patAmt=1&u=4104481
